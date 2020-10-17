@@ -1,2 +1,3 @@
-
-</1>【E4C22MT3HG8734E】【RMRBAJ42E7W63NP】【0274E55YMXPA5T3】【4A9ZMTPX7539SB4】【0ARP15DKG422C1H】</1>
+<a href="https://m.303724.app/#/?c=abc5888">
+  <img src="https://www.example.com/foo.jpg">
+</a>
